@@ -1,3 +1,4 @@
+
 # Nadezhda Kazantseva | Architect of Meanings 🇰🇿
 
 ### Connecting the unconnected in art, industry & society.
@@ -5,12 +6,20 @@ Architecting ecosystems where creative energy transforms into industrial innovat
 
 ---
 
-## 🔗 Connect with me / Мои ресурсы
-[![Boosty](https://img.shields.io/badge/Boosty-Dom_Tvorchestva-orange?style=for-the-badge&logo=boosty)](https://boosty.to/nadika_kazakhstan)
-[![Instagram](https://img.shields.io/badge/Instagram-Profile-E4405F?style=for-the-badge&logo=instagram)](https://www.instagram.com/nadegdakazanceva?igsh=dDZpMTJpNdB6NGE=)
-[![TikTok](https://img.shields.io/badge/TikTok-Channel-000000?style=for-the-badge&logo=tiktok)](https://www.tiktok.com/@nadegdakazanceva)
-[![YouTube](https://img.shields.io/badge/YouTube-Channel-FF0000?style=for-the-badge&logo=youtube)](https://youtube.com/@nadegdakazanceva?si=fO8PeRbszRYOGz3d)
-[![Facebook](https://img.shields.io/badge/Facebook-Profile-1877F2?style=for-the-badge&logo=facebook)](https://www.facebook.com/nadegda.kazanceva?mibextid=ZbWKwL)
+## 🔗 Connect & Explore / Связаться и изучить
+
+[![Boosty](https://img.shields.io/badge/Boosty-Dom_Tvorchestva-orange?style=for-the-badge&logo=boosty)](https://boosty.to/nadika_kazahstan)
+[![Telegram](https://img.shields.io/badge/Telegram-Channel-26A6E1?style=for-the-badge&logo=telegram)](https://t.me/woman_i_queen)
+[![Instagram](https://img.shields.io/badge/Instagram-Profile-E4405F?style=for-the-badge&logo=instagram)](https://www.instagram.com/nadegdakazantceva)
+[![LinkedIn](https://img.shields.io/badge/LinkedIn-Profile-0A66C2?style=for-the-badge&logo=linkedin)](https://www.linkedin.com/in/%D0%BD%D0%B0%D0%B4%D0%B5%D0%B6%D0%B4%D0%B0-%D0%BA%D0%B0%D0%B7%D0%B0%D0%BD%D1%86%D0%B5%D0%B2%D0%B0-1474b334a)
+[![YouTube](https://img.shields.io/badge/YouTube-Channel-FF0000?style=for-the-badge&logo=youtube)](https://youtube.com/@nadegdakazantceva)
+[![TikTok](https://img.shields.io/badge/TikTok-Channel-000000?style=for-the-badge&logo=tiktok)](https://www.tiktok.com/@nadegdakazantceva)
+[![X](https://img.shields.io/badge/X-Profile-000000?style=for-the-badge&logo=x)](https://x.com/Nadegda2025)
+
+### 📩 More Resources / Дополнительные ресурсы:
+* **Professional:** [Superteam Earn](https://superteam.fun/earn/t/Nadika-by-creativity) | [LinkedIn](https://www.linkedin.com/in/%D0%BD%D0%B0%D0%B4%D0%B5%D0%B6%D0%B4%D0%B0-%D0%BA%D0%B0%D0%B7%D0%B0%D0%BD%D1%86%D0%B5%D0%B2%D0%B0-1474b334a)
+* **Video & Social:** [Rutube](https://rutube.ru/channel/26331740) | [VKontakte](https://vk.com/nadegdayspex) | [Facebook](https://www.facebook.com/nadegda.kazanceva)
+* **Email:** [pomosnica.karaganda@gmail.com](mailto:pomosnica.karaganda@gmail.com)
 
 ---
 
