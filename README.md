@@ -5,6 +5,15 @@ Architecting ecosystems where creative energy transforms into industrial innovat
 
 ---
 
+## 🔗 Connect with me / Мои ресурсы
+[![Boosty](https://img.shields.io/badge/Boosty-Dom_Tvorchestva-orange?style=for-the-badge&logo=boosty)](https://boosty.to/nadika_kazakhstan)
+[![Instagram](https://img.shields.io/badge/Instagram-Profile-E4405F?style=for-the-badge&logo=instagram)](https://www.instagram.com/nadegdakazanceva?igsh=dDZpMTJpNdB6NGE=)
+[![TikTok](https://img.shields.io/badge/TikTok-Channel-000000?style=for-the-badge&logo=tiktok)](https://www.tiktok.com/@nadegdakazanceva)
+[![YouTube](https://img.shields.io/badge/YouTube-Channel-FF0000?style=for-the-badge&logo=youtube)](https://youtube.com/@nadegdakazanceva?si=fO8PeRbszRYOGz3d)
+[![Facebook](https://img.shields.io/badge/Facebook-Profile-1877F2?style=for-the-badge&logo=facebook)](https://www.facebook.com/nadegda.kazanceva?mibextid=ZbWKwL)
+
+---
+
 ## 🇷🇺 Резюме Основателя / Архитектор Смыслов
 
 **Кто я:**
